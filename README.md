@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything tech related, mostly design and human interaction
 - 🌱 I’m currently learning natural language processing
 - 💞️ I’m looking to collaborate on research projects(HCI)
-- 📫 How to reach me 
+- 📫 How to reach me ainsanyatemitayo305@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a passion for blending creativity with technology
 
